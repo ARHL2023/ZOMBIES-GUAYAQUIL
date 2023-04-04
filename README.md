@@ -44,6 +44,7 @@ En resumen, la ciudad de Guayaquil está en una situación crítica. La combinac
 
 
 2.	Lady y Andy: presentación de los dos personajes principales, sus vidas y su relación.
+
 Lady y Andy se conocieron en la Universidad de Guayaquil y desde el primer momento en que se vieron, sintieron una conexión especial. A medida que pasaba el tiempo, su amistad se fue fortaleciendo y pronto se dieron cuenta de que estaban enamorados el uno del otro. A pesar de que eran diferentes en muchas cosas, había algo que los unía: su amor por el conocimiento y la innovación.
 Lady era una chica pequeña en estatura pero grande en personalidad. Su amor por la cultura coreana era evidente en todo lo que hacía. Pasaba horas viendo dramas coreanos, escuchando música de K-Pop y aprendiendo todo lo que podía sobre la cultura de Corea del Sur. Para ella, BTS no era solo una banda de música, sino una fuente de inspiración y motivación en su vida.
 Andy, por otro lado, era un chico alto y delgado con un aspecto maduro que lo hacía parecer mayor de lo que realmente era. A pesar de no ser tan apasionado por la música de Lady, encontraba fascinantes sus intereses y pasatiempos. Era un estudiante dedicado y comprometido con sus estudios de ingeniería de software, y siempre estaba buscando maneras de mejorar sus habilidades y conocimientos.
