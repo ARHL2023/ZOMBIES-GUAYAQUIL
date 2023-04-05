@@ -60,11 +60,58 @@ En general, Lady y Andy tienen una relación sólida y basada en la confianza y 
 
 
 
---POR DESARROLLAR
 
 3.	El brote: surgimiento del misterioso brote que amenaza la ciudad y sus habitantes.
 
+El día había amanecido nublado en Guayaquil, pero esto no parecía afectar la actividad normal de la ciudad. La calle 9 de Octubre, una de las más transitadas y concurridas, se llenaba poco a poco de personas que se movían de un lado a otro. Los negocios abrían sus puertas y los vendedores ambulantes ofrecían sus productos en las esquinas. Los carros transitaban con normalidad, y el ruido de la ciudad se mezclaba con las voces de los transeúntes.
+De repente, en medio de todo este movimiento, una persona comenzó a atacar a otra sin motivo aparente. La situación tomó por sorpresa a los testigos, quienes no entendían lo que estaba sucediendo. La víctima intentó defenderse, pero el atacante no se detuvo. Los gritos de la víctima alertaron a los transeúntes, quienes empezaron a entrar en pánico al ver la violencia del ataque. La situación rápidamente escaló, y los curiosos se alejaron mientras llamaban a la policía para intervenir.
+
+La policía recibió múltiples llamadas de emergencia y fue enviada para controlar la situación. Al llegar a la zona, los oficiales encontraron una escena caótica: personas corriendo y gritando, algunos heridos y otros siendo atacados por individuos que parecían estar completamente fuera de sí. Los oficiales trataron de detener a los atacantes, pero pronto se dieron cuenta de que algo muy extraño estaba sucediendo. Los agresores parecían estar muertos, pero seguían moviéndose y atacando a la gente. La policía no sabía cómo responder a esta situación tan inusual, y la situación empeoraba cada vez más. esto amplialo mucho mas, ten en cuenta que aun es en un pequeño sector de la 9 de octubre no es que se expande ni nada, claor que habran unos policias y personas muertas vamos hazlo
+Al llegar al lugar de los hechos, los oficiales se encontraron con una escena caótica y confusa. Había personas corriendo en todas direcciones, gritando y pidiendo ayuda. Algunas estaban heridas, otras estaban siendo atacadas por personas que parecían estar completamente fuera de sí. Los policías trataron de intervenir, pero se encontraron con una situación sin precedentes.
+Los atacantes no parecían tener ninguna intención de detenerse. A pesar de los intentos de los oficiales por detenerlos, estos individuos continuaron moviéndose y atacando a las personas a su alrededor. Lo más sorprendente de todo era que parecían estar muertos. Tenían la piel pálida y los ojos en blanco, y no respondían a ningún estímulo. Era como si hubieran perdido toda conciencia de su entorno y solo estuvieran impulsados por algún instinto primario.
+Los oficiales intentaron detenerlos con todo lo que tenían a su disposición, incluyendo el uso de la fuerza letal, pero nada parecía funcionar. Los agresores simplemente se levantaban una y otra vez, como si no hubieran sufrido ningún daño. Mientras tanto, más y más personas se sumaban a la horda de agresores, lo que hacía que la situación fuera aún más difícil de controlar.
+El caos se extendió rápidamente por el sector de la calle 9 de Octubre, con los transeúntes corriendo en todas direcciones para escapar de los agresores. Algunos se refugiaron en los negocios cercanos, mientras que otros buscaron refugio en los edificios cercanos. Los sonidos de los cristales rotos y los gritos de la gente eran ensordecedores.
+La policía, superada en número y con la imposibilidad de detener a los agresores, se vio obligada a retroceder y buscar ayuda adicional. Mientras tanto, la situación empeoraba cada vez más, con la horda de agresores extendiéndose por las calles aledañas y atacando a cualquier persona que se cruzara en su camino. La ciudad se encontraba en un estado de caos y pánico, sin saber cómo detener a esta extraña plaga de agresores no-muertos.
+-----------------
+Andy se encontraba viendo la televisión y jugando Pokémon en su teléfono cuando de repente se interrumpió la programación para emitir una alerta sobre "protestas" en la calle 9 de octubre. Al principio, Andy no le prestó mucha atención y continuó con su juego, pero luego empezó a ver en las redes sociales algunos videos que mostraban escenas de caos y violencia inexplicables.
+Preocupado por lo que estaba sucediendo, Andy decidió compartir los videos con su novia Lady, quien no tenía una televisión en su casa y no había escuchado nada de lo que estaba sucediendo en la ciudad. Al ver los videos, ella se asustó mucho y le pidió a Andy que le explicara lo que estaba sucediendo.
+Andy, tratando de tranquilizarla, le explicó lo que había visto en las redes sociales y en la televisión, y le aseguró que estaban lejos de la zona de los disturbios. Pero a pesar de esto, ambos se dieron cuenta de que algo grave estaba sucediendo en la ciudad y que debían estar preparados para cualquier eventualidad.
+Lady, preocupada por la situación, le preguntó a Andy si había alguna forma en la que pudieran ayudar. Andy, buscando ser positivo, le dijo que podían donar a organizaciones que ayudaran a los afectados por los disturbios o incluso ofrecerse como voluntarios si la situación empeoraba.
+
+Andy continuó mirando los videos en su teléfono mientras Lady lo observaba con preocupación. De repente, vieron algo que los dejó en shock: en uno de los videos, una persona mordía a otra en plena calle.
+Andy: ¡¿Qué diablos fue eso?!
+Lady: No puede ser... ¿acaso son zombis?
+Andy: No, no puede ser. Eso solo pasa en las películas.
+Lady: Pero mira lo que está sucediendo en la ciudad. No es normal.
+Andy: Tienes razón. Quizás deberíamos empezar a prepararnos para lo peor.
+Lady: ¿Qué podemos hacer?
+Andy: Bueno, podemos ir al supermercado y comprar provisiones para varios días. También podemos armar un kit de emergencia con botiquín de primeros auxilios y linternas.
+Lady: Sí, eso suena bien. Y quizás deberíamos avisar a nuestras familias y amigos para que se preparen también.
+Andy: Claro, eso es una buena idea. Debemos estar listos para cualquier cosa.
+
+
+
+
 4.	La respuesta del gobierno y los militares: ante la falta de acción del gobierno, los militares toman el control de la situación en Guayaquil con la intención de ayudar a la población en crisis. Sin embargo, algunos ciudadanos desconfían de sus motivos y temen un posible conflicto.
+
+
+El brote de la enfermedad comenzó sin previo aviso, y ni siquiera el gobierno estaba al tanto de lo que estaba sucediendo. A medida que la situación se complicaba, llegaron más policías al lugar para controlar la situación y ayudar a la población en crisis. Sin embargo, el caos comenzó a desatarse rápidamente, con civiles y policías peleando desesperadamente para detener la amenaza. Desafortunadamente, algunos perdieron la vida en el proceso.
+Mientras tanto, los bloqueos comenzaron a aparecer en las calles de Guayaquil, con la gente desesperada por evitar que el brote se propagara aún más. En medio de todo esto, la televisión continuó transmitiendo, pero pronto se produjo un evento escalofriante: un grupo de zombies atacó a los reporteros que estaban cubriendo la noticia. Afortunadamente, la policía logró protegerlos y salvar sus vidas, pero la evidencia en las imágenes de televisión fue inquietante, ya que millones de familias vieron a esos monstruos atacando a los reporteros.
+El gobierno finalmente se enteró de la situación, pero estaba en un dilema: no sabía qué hacer. A pesar de la gravedad de la situación, todavía no había ordenado el envío de los militares para ayudar en el control del brote. La situación empeoró aún más a medida que el brote se extendía por la ciudad, aunque aún estaba lejos de alcanzar a Andy y Lady.
+La policía continuó luchando contra los zombies, pero con cada hora que pasaba, el brote se expandía por la ciudad. En algunos lugares, la población cercana se defendió como pudo, pero en otros, la situación estaba totalmente fuera de control. Los ciudadanos comenzaron a perder la esperanza, mientras el gobierno seguía indeciso sobre cómo abordar la crisis.
+El brote de la enfermedad comenzó en Guayaquil sin previo aviso y la situación se complicó rápidamente. El gobierno se enteró del brote, pero no supo cómo actuar y, en lugar de enfrentar la crisis, los altos mandos y el presidente huyeron del país sacando su dinero de los bancos.
+Los ciudadanos se dieron cuenta de la fuga del presidente y sus altos mandos en el aeropuerto y comenzaron a grabar la escena. La noticia se difundió rápidamente, lo que provocó la ira de la población. Los saqueos comenzaron a extenderse por la ciudad mientras los policías seguían enfrentando a los zombies para controlar la situación.
+Mientras tanto, los bloqueos comenzaron a aparecer en las calles de Guayaquil con la gente desesperada por evitar que el brote se propagara aún más. En medio de todo esto, la televisión continuó transmitiendo, pero pronto se produjo un evento escalofriante: un grupo de zombies atacó a los reporteros que estaban cubriendo la noticia. Afortunadamente, la policía logró protegerlos y salvar sus vidas, pero la evidencia en las imágenes de televisión fue inquietante, ya que millones de familias vieron a esos monstruos atacando a los reporteros.
+Después de que se supiera que el gobierno había huido del país y retirado su dinero de los bancos, la indignación de la población aumentó aún más. Los ciudadanos estaban furiosos por la falta de acción del gobierno y por la forma en que los políticos y los altos funcionarios habían abandonado a la población en medio de una crisis tan grave.
+Los saqueos y disturbios comenzaron a extenderse por toda la ciudad, especialmente en los barrios más pobres, donde la gente sufría la peor parte de la crisis. Los ciudadanos se sintieron abandonados por sus líderes y comenzaron a tomar medidas por sí mismos para proteger a sus familias y comunidades.
+Por otro lado, los policías y los militares seguían luchando contra el brote de la enfermedad, pero la situación se estaba volviendo cada vez más difícil para ellos. A pesar de sus esfuerzos, muchos de ellos también habían caído enfermos y no podían seguir combatiendo la amenaza.
+Los militares decidieron tomar el control de la situación y salieron a las calles para tratar de contener el brote y proteger a la población. Se establecieron medidas de seguridad y se crearon zonas seguras para los ciudadanos que no estaban infectados. Además, se inició una campaña de concienciación para informar a la población sobre cómo prevenir la propagación del virus.
+Sin embargo, a pesar de todos los esfuerzos, el brote seguía avanzando. Los zombies se habían propagado por toda la ciudad y cada vez era más difícil detenerlos. Los militares sabían que necesitaban ayuda externa si querían sobrevivir a la crisis.
+
+
+
+--POR DESARROLLAR
+
 
 5.	La lucha por sobrevivir: la población comienza a sufrir los efectos del brote y lucha por sobrevivir en medio del caos.
 
